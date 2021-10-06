@@ -1,2 +1,2 @@
-# jethroleeeelorhtej-nighteveryday_blocklist
+# nighteveryday_blocklist
 Night Shift TG Post
